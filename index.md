@@ -1,5 +1,3 @@
-## Mr. Infinity
-
 # Mr. Infinity Privacy Policy
 
 Last updated: December 20, 2021
